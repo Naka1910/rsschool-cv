@@ -1,6 +1,8 @@
 
 
 ### Nana Jikia.   
+<img width="250" alt="Naka" src="https://user-images.githubusercontent.com/85993476/162499975-f479574b-0166-4e85-83a7-e046134435c9.png">
+
 __Contacts:__  
 __Phone:__ +995577352151  
 __Email:__ naka.jikia19@gmail.com  
